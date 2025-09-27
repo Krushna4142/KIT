@@ -1,1 +1,1 @@
-# KIT
+# KIT-Krushna In Tech
